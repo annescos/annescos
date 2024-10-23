@@ -15,4 +15,4 @@ Contact Me
 Feel free to reach out via annonfrink@gmail.com .
 
 Fun Facts
-I love to listen to listen music (EDM,pop music, gospel,RnB,Rhumba😂),read novel and enjoying most of my time lonely 😎.
+I love to listen to  music (EDM,pop music, gospel,RnB,Rhumba😂),read novel and enjoying most of my time 😎.
